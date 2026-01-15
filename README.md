@@ -37,6 +37,6 @@ Sou um apaixonado por transformar processos complexos em interfaces simples e fu
 
 * **LinkedIn:** [marceloef](https://www.linkedin.com/in/marceloef/)
 * **WhatsApp:** [+55 83 98858-7739](https://wa.me/5583988587739)
-* **Email:** marcelosantosfs2016@gmail.com
+* **Email:** marceloefabiola2008@gmail.com
 
 *"Transformando problemas em código, e código em experiência."*
